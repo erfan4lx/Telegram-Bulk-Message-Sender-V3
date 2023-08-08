@@ -7,7 +7,7 @@ The best tool to send bulk message to the members of your target group via User-
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx7
+ Telegram : https://t.me/erfan4lx0
   
  Email : erfan4lx@gmail.com
   
